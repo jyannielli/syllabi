@@ -54,7 +54,6 @@ Empire, and the Globalization of the New South*
 ***Supplementary Primary Material:***
 
 Robert Adams, *The Narrative of Robert Adams: An American sailor who was wrecked on the western coast of Africa, in the year 1810, was detained three years in slavery by the Arabs of the Great Desert, and resided several months in the City of Tombuctoo* (1816)
-====================================================================================================================================================================================================================================================================
 
 David F. Bacon, *Wanderings on the Seas and Shores of Africa* (1843)
 
