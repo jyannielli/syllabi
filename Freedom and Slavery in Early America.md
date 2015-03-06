@@ -45,7 +45,6 @@ Slaves, Commoners, and the Hidden History of the Revolutionary Atlantic*
 (2000)
 
 Christina Snyder, *Slavery in Indian Country: The Changing Face of Captivity in Early America* (2010)
-=====================================================================================================
 
 David Waldstreicher, *Runaway America: Benjamin Franklin, Slavery, and
 the American Revolution* (2004)
